@@ -1,6 +1,6 @@
 
 
-=== Résultats --- caviardé (trop puissant)
+=== Résultats --- caviardé (trop puissant) ===
 
 
 
